@@ -11,9 +11,9 @@ I know is going to be a mess, and I'm sorry in advance, but cut it open carefull
 There is something legal inside that I hope you like. Can't hold a candle to moonshine in my opinion, but is good though.
 
 ```markdown
-I HOPE YOU AND YOU FAMILY HAVE A GOOD CHRISTMAS
+I HOPE YOU AND YOUR FAMILY HAVE A GOOD CHRISTMAS!!
 ```
 
 ### *LEGAL DISCLAIMER*
 
-*ALL THIS POWDER STUFF IS ALL-PURPOSE FLOUR*
+*ALL THIS POWDER STUFF IS ALL-PURPOSE FLOUR, BUT YOU ALREADY KNEW THAT*
