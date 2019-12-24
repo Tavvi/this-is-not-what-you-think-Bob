@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+I know what you are thinking Bob, but this gift is not that!!
 
 You can use the [editor on GitHub](https://github.com/Tavvi/this-is-not-what-you-think-bob/edit/master/index.md) to maintain and preview the content for your website in Markdown files.
 
